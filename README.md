@@ -3,7 +3,7 @@
 <img width="2048" height="157" alt="image" src="https://github.com/user-attachments/assets/b6e1020a-ec4d-4c60-b000-9fadf45d508f" />
 <img width="768" height="768" alt="image" src="https://github.com/user-attachments/assets/6ad13144-8713-4b59-b12a-1ea03223dad5" />
 <p align="center">
-<a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fkingsproperty"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fkingsproperty&label=%E2%9A%94%EF%B8%8F%20turned%20left&labelColor=%238a0000&countColor=%23ffc524&style=plastic" /></a> </p>
+<a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fsunkissedloser"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fsunkissedloser&label=%E2%80%94%20%E1%A8%B3%E0%AC%93%20.&labelColor=%23e58db4&countColor=%23d9e3f0&style=plastic" /></a> </p>
  <p align="center"> 
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/5b1fabec-5d3f-446e-873f-e6cb0e15c296" />
   ⠀  ˳⠀⠀⠀sunkissed , sun/sunny⠀⠀ノ⠀⠀5teen .⠀ 𖹭
@@ -31,7 +31,7 @@ preferably you call me it when we are in-game, thanks !
 <img width="2048" height="255" alt="image" src="https://github.com/user-attachments/assets/0d0575f7-e07c-4d45-b6b2-b89da6f8ba29" />
 </p>
 <p align="center">
-  <img width="150" height="20" alt="homo behavior" src="https://github.com/user-attachments/assets/369bd40f-7d44-4d76-9df7-20c315f9b5db" /> <br>
+  <img width="150" height="20" alt="blinkiesCafe-QS" src="https://github.com/user-attachments/assets/e2468701-dbd0-4b6b-8b4f-a3d5ccbaf522" /> <br>
 💚; I am actively scanning the area, spectating people!<br>
 💛; Likely off-tab, just give me a whisp if you wanna int!<br>
 ❤️; Most likely AFK/Not at my desktop! <br>
@@ -47,7 +47,7 @@ preferably you call me it when we are in-game, thanks !
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹<br>
 <p align="center">✦ . if im nowhere to be found in my default spawn points, consider checking this area</p>
 <p align="center"><img width="250" height="211" alt="image" src="https://github.com/user-attachments/assets/80eeccee-9d5a-4fd3-9e34-8ed33cd03135" /></p>
-<p align="center"><img width="200" height="30" alt="blinkiesCafe-os" src="https://github.com/user-attachments/assets/bf2971bd-4a4e-4046-900f-f84f7581146f" /></p>
+<p align="center"><img width="150" height="20" alt="blinkiesCafe-xH" src="https://github.com/user-attachments/assets/8ef34230-5723-43fc-b2de-84c007b6a92b" /></p>
 <p align="center">✦ . I'M SORRY IF IM NOT AS AFFECTIONATE SOMETIMESSS </p>
 <p align="center">✦ . IM SUPER FREAKING SHY 💔🥀 </p>
 <p align="center">✦ . my humor can be offensive at times, i tend to tease and jokingly bully once we're close enough</p>
@@ -57,10 +57,9 @@ preferably you call me it when we are in-game, thanks !
 <p align="center">✦ . may or may not be a fictkin,, not sure,, kinda new to the term and the concept,,</p>
 <p align="center">✦ . im not very social, a good amount of the time, i use non-verbal/non-typing cues,,</p>
 <p align="center">✦ . so sorry if they're hard to understand :( </p>
-<p align="center">✦ . The skins you'll often, but not limited to, find me in are;</p>
 <p align="center">
-<img width="778" height="521" alt="image" src="https://github.com/user-attachments/assets/558da092-8ee9-483d-9166-f2d9250f647d" />
-<img width="2048" height="255" alt="image" src="https://github.com/user-attachments/assets/7dcdbd27-9564-4619-920c-93de34714ab3" />
+<img width="2048" height="157" alt="image" src="https://github.com/user-attachments/assets/c793cac5-dc59-4de8-b189-68ff0f45ef34" />
+
 
 
 
