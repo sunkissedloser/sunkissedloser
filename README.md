@@ -1,5 +1,4 @@
 <p align="center">
- best viewed on light mode cuz im too lazy to make each png transparent
 <img width="2048" height="157" alt="image" src="https://github.com/user-attachments/assets/b6e1020a-ec4d-4c60-b000-9fadf45d508f" />
 <img width="768" height="768" alt="image" src="https://github.com/user-attachments/assets/6ad13144-8713-4b59-b12a-1ea03223dad5" />
 <p align="center">
