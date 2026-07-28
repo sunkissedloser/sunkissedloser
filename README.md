@@ -1,6 +1,6 @@
 <p align="center">
 <img width="2048" height="157" alt="image" src="https://github.com/user-attachments/assets/b6e1020a-ec4d-4c60-b000-9fadf45d508f" />
-<img width="768" height="768" alt="image" src="https://github.com/user-attachments/assets/6ad13144-8713-4b59-b12a-1ea03223dad5" />
+<img width="593" height="559" alt="image" src="https://github.com/user-attachments/assets/d7dd1401-3c51-419f-b8e7-8cd4ccc23b54" />
 <p align="center">
 <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fsunkissedloser"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fsunkissedloser&label=%E2%80%94%20%E1%A8%B3%E0%AC%93%20.&labelColor=%23e58db4&countColor=%23d9e3f0&style=plastic" /></a> </p>
  <p align="center"> 
@@ -46,18 +46,17 @@ preferably you call me it when we are in-game, thanks !
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹<br>
 <p align="center">✦ . if im nowhere to be found in my default spawn points, consider checking this area</p>
 <p align="center"><img width="250" height="211" alt="image" src="https://github.com/user-attachments/assets/80eeccee-9d5a-4fd3-9e34-8ed33cd03135" /></p>
-<p align="center"><img width="150" height="20" alt="blinkiesCafe-xH" src="https://github.com/user-attachments/assets/8ef34230-5723-43fc-b2de-84c007b6a92b" /></p>
 <p align="center">✦ . I'M SORRY IF IM NOT AS AFFECTIONATE SOMETIMESSS </p>
 <p align="center">✦ . IM SUPER FREAKING SHY 💔🥀 </p>
 <p align="center">✦ . my humor can be offensive at times, i tend to tease and jokingly bully once we're close enough</p>
 <p align="center">✦ . please tell me if youre sensitive to stuff like that <3</p>
-<p align="center">✦ . multishipper ! derking, slimeknight (to whom i will argue should be slimespartan CUZ A SPARTAN IS WHAT DERLORD IS), </p>
-<p align="center">✦ . ill even indulge in ur yume if u want me to ! </p>
 <p align="center">✦ . may or may not be a fictkin,, not sure,, kinda new to the term and the concept,,</p>
 <p align="center">✦ . im not very social, a good amount of the time, i use non-verbal/non-typing cues,,</p>
 <p align="center">✦ . so sorry if they're hard to understand :( </p>
 <p align="center">
 <img width="2048" height="157" alt="image" src="https://github.com/user-attachments/assets/c793cac5-dc59-4de8-b189-68ff0f45ef34" />
+<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/abb94195-249c-46b9-8a40-30b50cf067c4" />
+
 
 
 
