@@ -1,6 +1,6 @@
 <p align="center">
 <img width="2048" height="157" alt="image" src="https://github.com/user-attachments/assets/b6e1020a-ec4d-4c60-b000-9fadf45d508f" />
-<img width="593" height="559" alt="image" src="https://github.com/user-attachments/assets/d7dd1401-3c51-419f-b8e7-8cd4ccc23b54" />
+<img width="685" height="630" alt="image_2026-07-28_165026030 (1)" src="https://github.com/user-attachments/assets/5f113d69-ab46-423c-8a2c-a3991688f0f4" />
 <p align="center">
 <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fsunkissedloser"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fsunkissedloser&label=%E2%80%94%20%E1%A8%B3%E0%AC%93%20.&labelColor=%23e58db4&countColor=%23d9e3f0&style=plastic" /></a> </p>
  <p align="center"> 
