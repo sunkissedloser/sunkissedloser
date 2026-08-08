@@ -14,7 +14,7 @@
  <p align="center">
   ✦︎ㅤㅤ<b>usually offtab</b>⠀⠀⏝⠀⠀<u>__w2int__</u>　⠀゛ ⸝⸝ .ᐟ ⋆ <br></p>
     <p align="center">
- <a href="https://propertyoftheking.atabook.org" hidden>sign ata!!</a>⠀⠀,⠀⠀<a href="https://pronouns.cc/@sleepyyy" hidden>pronouns.cc !</a>⠀⠀,⠀⠀<a href="https://discord.com/users/897290103288918026"hidden>discord !</a>
+ <a href="https://propertyoftheking.atabook.org" hidden>sign ata!!</a>⠀⠀,⠀⠀<a href="https://pronouns.cc/@sleepyyy" hidden>pronouns.cc !</a>⠀⠀,⠀⠀<a href="https://lacetrim.straw.page"hidden>strawpage !</a>
 </p>
 <p align="center">
 ** the name sunkissed is an online alias <br>
