@@ -55,7 +55,7 @@ preferably you call me it when we are in-game, thanks !
 <p align="center">✦ . so sorry if they're hard to understand :( </p>
 <p align="center">✦ . ps; im not a yume, i just really like alyosha </p>
 <img width="2048" height="157" alt="image" src="https://github.com/user-attachments/assets/c793cac5-dc59-4de8-b189-68ff0f45ef34" />
-<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/abb94195-249c-46b9-8a40-30b50cf067c4" />
+<p align="center"><img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/abb94195-249c-46b9-8a40-30b50cf067c4" />
 
 
 
