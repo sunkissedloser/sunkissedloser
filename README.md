@@ -1,6 +1,6 @@
 <p align="center">
 <img width="2048" height="157" alt="image" src="https://github.com/user-attachments/assets/b6e1020a-ec4d-4c60-b000-9fadf45d508f" />
-<img width="685" height="630" alt="image_2026-07-28_165026030 (1)" src="https://github.com/user-attachments/assets/5f113d69-ab46-423c-8a2c-a3991688f0f4" />
+ <img width="613" height="613" alt="image" src="https://github.com/user-attachments/assets/242fb0cf-f766-4218-bf85-65dda36e420b" />
 <p align="center">
 <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fsunkissedloser"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fsunkissedloser&label=%E2%80%94%20%E1%A8%B3%E0%AC%93%20.&labelColor=%23e58db4&countColor=%23d9e3f0&style=plastic" /></a> </p>
  <p align="center"> 
@@ -53,7 +53,7 @@ preferably you call me it when we are in-game, thanks !
 <p align="center">✦ . may or may not be a fictkin,, not sure,, kinda new to the term and the concept,,</p>
 <p align="center">✦ . im not very social, a good amount of the time, i use non-verbal/non-typing cues,,</p>
 <p align="center">✦ . so sorry if they're hard to understand :( </p>
-<p align="center">
+<p align="center">✦ . ps; im not a yume, i just really like alyosha </p>
 <img width="2048" height="157" alt="image" src="https://github.com/user-attachments/assets/c793cac5-dc59-4de8-b189-68ff0f45ef34" />
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/abb94195-249c-46b9-8a40-30b50cf067c4" />
 
